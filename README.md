@@ -8,3 +8,10 @@ Accessoirement j'ai révisé mon anglais avec Cindy de Dallas Texas :))
 A suivre
 
 test de modification
+
+le 7 octobre 2016 :
+je viens d'envoyer le questionnaire ; je ne suis pas entièrement satisfait - les objectifs ne sont pas définis alors j'ai juste considéré que la limite du soir était réalisé qq part ou que le jury regardera le profil codecademy...
+
+Ce processus de sélection est tout de même interressant pour soi-même car il permet de s'auto évaluer ; une petite introspection de temps en temps ça ne peut pas faire de mal !
+
+Bonne soirée
